@@ -1,0 +1,2 @@
+Moje Emoji
+# Emoji
